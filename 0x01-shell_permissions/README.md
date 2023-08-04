@@ -1,1 +1,1 @@
-permission
+look in the mirror
